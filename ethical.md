@@ -1,0 +1,3 @@
+Facebook's primary purpose at its creation in 2004 was to facilitate social interaction and private communication.  It allowed people to connect to former acquaintances, interact across boundaries, and share life moments and values that are in line with community and freedom. This allowed facebook users to have their voice heard, information will be easy to access and be able to build connections with different people.
+
+Facebook's business plan changed as it expanded into a major Internet company.  Due to computer interaction and information provided by users, the site grew heavily reliant on customized advertisements. Users frequently lacked a solid grasp of how their personal information was gathered, processed, and marketed.
