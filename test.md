@@ -11,6 +11,8 @@ March 2004-2005- Facebook, at the time called theFacebook, takes off in populari
 
 2018- Facebook illegally used data to sway elections.
 
+Modern day- Facebook, now as a company going by meta, though still having facebook as an offshoot of it is ranked the 6th biggest company in the world, with a market cap of 1.1 trillion USD.
+
 
 
 
@@ -31,3 +33,4 @@ Sources-
 (1) https://www.thecrimson.com/article/2003/11/19/facemash-creator-survives-ad-board-the/
 (2)https://www.tuftsdaily.com/article/2004/04/online-network-created-by-harvard-students-flourishes
 (3)https://www.americanantiquarian.org/proceedings/44525121.pdf
+(4) https://cropink.com/meta-statistics
