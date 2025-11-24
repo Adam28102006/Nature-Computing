@@ -11,7 +11,21 @@ March 2004-2005- Facebook, at the time called theFacebook, takes off in populari
 
 2018- Facebook illegally used data to sway elections.
 
-Modern day- Facebook, now as a company going by meta, though still having facebook as an offshoot of it is ranked the 6th biggest company in the world, with a market cap of 1.1 trillion USD.
+Modern day- Facebook, now as a company going by meta, though still having facebook as an offshoot of it is ranked the 6th biggest company in the world, with a market cap of 1.1 trillion USD.(4)
+
+
+Key People- 
+
+Mark Zuckerberg- the most famously involved person in facebook. one of the founders and the Longtime CEO. He is likely the first name that you think about when you hear the word Facebook.
+
+Eduardo saverin- Another original founder of facebook, was the first investor. he would go on to found investment company B Capital.
+
+Dustin Moskovitz- The main coder at the beginning. He worked in facebook for 4 years before he opened asana, his own company. Due to his stake in facebook, he was reported to be the youngest self-made billionare in 2011
+
+Sean Parker- Originally created Napster, he became the first president of Facebook and led their expansion.
+
+Peter Thiel- The first outside investor in Facebook. He invested 500,000 as it was expanding.
+
 
 
 
