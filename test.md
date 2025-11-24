@@ -1,3 +1,16 @@
+Introduction- 
+
+This case study is examining the growth and history of facebook. An important distinction is that we are looking at Facebook the company, currently known as Meta, as opposed to the application facebook, though they are intrinsicly linked so there will be some overlap. Facebook has been at the forefront of social media for nearly the last two decades. Though in the modern-day, it as a social media is seen as for older people, you cant 
+deny how important meta is for social media as a whole. Meta own Facebook, whatsapp, instagram and messanger, as well as whole lot of other companies. 
+
+We will analyse this growth and change through the lens of business and societal impacts. Meta made billions, with all four of its founders being billionares respectfully and Facebook changed society as a whole. It was so sucsessful as it wasnt sold, which happened to many other precursers, which then saw a dip in users as the sites were seen as a way for profit.
+
+
+
+
+
+
+
 Facebook timeline- 
 Febuary 2004- Facebook is launched, though its precurser named 'Facemash' was made the year prior. while its precurser was designed as an app purely to rate people based on looks, Facebook also included peoples personal information.
 
@@ -27,6 +40,9 @@ Sean Parker- Originally created Napster, he became the first president of Facebo
 Peter Thiel- The first outside investor in Facebook. He invested 500,000 as it was expanding.
 
 
+490 Words-
+
+
 
 
 
@@ -48,3 +64,4 @@ Sources-
 (2)https://www.tuftsdaily.com/article/2004/04/online-network-created-by-harvard-students-flourishes
 (3)https://www.americanantiquarian.org/proceedings/44525121.pdf
 (4) https://cropink.com/meta-statistics
+(5)https://www.forbes.com/sites/gilpress/2018/04/08/why-facebook-triumphed-over-all-other-social-networks/
