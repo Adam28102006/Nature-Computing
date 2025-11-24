@@ -65,3 +65,5 @@ Sources-
 (3)https://www.americanantiquarian.org/proceedings/44525121.pdf
 (4) https://cropink.com/meta-statistics
 (5)https://www.forbes.com/sites/gilpress/2018/04/08/why-facebook-triumphed-over-all-other-social-networks/
+
+Conclusion- In conclusion, Meta or facebook has grown a lot since it was made, and has a great position right now to continue it. Dispite the many ethical and societal impacts that it has has, both positive and negitive, it makes enough money that it can afford to lose some users. We dont think that facebook really will have any issues, as it divercified its markets so it has an app for young people in instagram.
