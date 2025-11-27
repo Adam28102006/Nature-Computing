@@ -33,3 +33,8 @@ Cyberbullying & harassment: The platforms have made it easy to be cyber bullied 
 Mixed Impacts:
 
 Validation & self-worth: Likes and comments can temporarily boost confidence but can also lead to dependence on external approval from other people and be subject to there oprions
+
+
+conclusion for end
+
+In conclusion, Meta or facebook has grown a lot since it was made, and has a great position right now to continue it. Despite the many ethical and societal impacts that ithas has, both positive and negitive, it makes enough money that it can afford to losesome users. We dont think that facebook really will have any issues, as it divercified itsmarkets so it has an app for young people in instagram.​
